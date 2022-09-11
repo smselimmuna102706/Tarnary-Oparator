@@ -1,1 +1,1 @@
-# Tarnary-Oparator
+https://smselimmuna102706.github.io/Tarnary-Oparator/
